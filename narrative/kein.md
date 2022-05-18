@@ -1,8 +1,57 @@
-# Kein - Session 1.
+# Backstory
+
+## Character Arc
+
+On one snowy day when I was but a boy, I found a mysterious device. Curious, I pressed a button, which activated Hover ability. Unable to master the usage of the device, I was drifted into the sky until the ability's duration ended.
  
+When I landed, I found myself in middle of a city that I had never heard. Moreover, people in the city spoke in the language that I never heard. It took me some time to learn the language and earn a living. My goal is fairly simple: To go back home.
+
+## Background
+
+I lived in a mountain range. As a son of rangers, I learnt various skills from the early age, and they came handy when I started mercenary/postal works.
+ 
+I usually travel between cities to deliver packages and escort people, though I break the stuff about a quarter of times. (Therefore, I always prefer escort mission.) As such, I did not gather large sums of money for me to travel to wilderness and try to find my home. Still, I am optimistic about it. After all, my customers like me...
+
+## Personal Goals
+
+First, earning enough money to explore.
+Second, use the money to go back home.
+
+## Appearance
+
+I have blue eyes and black-ish hair that changes to dark blue under sunlight. I have a metal belt that gives gives me the ability to control gravity, though I am afraid to use the device.
+
+## Mannerisms
+
+I always fiddle with the belt's buttons when I'm bored. Though I am clumsy, I have fiddled with it so much that I no longer activate its ability by accident. Also, I tend to look at people's nose when I talk so that I can pretend to look people in the eyes.
+
+## Additional Connections
+
+There is a friend, named Hoya, of noble descendant in the Temple District who studies to become a priest. He was the one who took pity on me (or was it? I think he found me floating around helplessly very amusing and decided to help me.) and taught me everything, including the language of the city. When he finishes his dissertation and becomes a proper priest, we will be having an adventure together. He always tries to trick me, and I fall for it most of the times.
+ 
+For a few years, I would follow him around until I decided to go on an adventure to find my home. For a farewell gift, he did give me a bag of money, but it was stolen on day one by a member of a thief's guild. I know the person, but I could not get enough evidence to get her arrested.
+ 
+Anyhow, I sometimes drop in by Ptlos to say, "Hi," to the friend.
+
+## Allies, Relatives, Contacts, and Organization Affiliations
+
+Hoya, a paladin candidate, helps me sometimes, like one time when he fetched me an escort mission.
+ 
+Arvid, who stole my money, sometimes asks for a help to find a murderer when the thief guild is framed. Though she does not pay handsomely, she does pass on informations I need (sometimes after paying a huge amount of money in cash).
+
+## Enemies & Opposed Organizations
+
+Hoya, a paladin candidate, helps me sometimes, like one time when he fetched me an escort mission.
+ 
+Arvid, who stole my money, sometimes asks for a help to find a murderer when the thief guild is framed. Though she does not pay handsomely, she does pass on informations I need (sometimes after paying a huge amount of money in cash).
+
+# Journal
+
+## Session 1
+
 I met 'Mad' Martigan and Hudson. It was after I accidentally stepped on an important package for a client and compensating for it. I was supposed to meet Hoya, but he cancelled the meeting at the very last moment. I was a bit sad, but Mr. Martigan and Mr. Hudson seemed to be good fellows (though I am still afraid of Mr. Hudson a bit. He said it was just an accident, but the pain!)--after all, we had caught the assassins trying to kill Phon Quartermail. Even though I could only get one gold (damn it my clumsy hands!), it was still a step forward to save up for my future exploration to home, not to mention potential travel mates.
  
-# Kein - Session 2.
+## Session 2
  
 Arvid often gets into troubles many times because of her 'career.' She should know about the gang, but the problem is that I don't know where she is. Hopefully, Father Fabitor knows her whereabouts. With Martigan and Hudson, we went to talk to him.
  
@@ -15,4 +64,5 @@ Anyway, she was not there, so we decided to go to the warehouse. On the way, we 
 The warehouse seemed to be used recently--no cobwebs. I believe it was there to 'cut the loose ends.'
  
 On the next day early in the morning, we went to Phon's shop to talk to 'Marta.' She had a job for me, and I needed some information. Martigan and Hudson was adamant, so, in the end, she gave us a hint on Phon's financial situation.
+
 Apparently, she was a mistress of some rich dude. Though we tried to drill for more information, all our efforts failed.
