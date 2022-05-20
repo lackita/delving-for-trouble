@@ -66,3 +66,35 @@ The warehouse seemed to be used recently--no cobwebs. I believe it was there to 
 On the next day early in the morning, we went to Phon's shop to talk to 'Marta.' She had a job for me, and I needed some information. Martigan and Hudson was adamant, so, in the end, she gave us a hint on Phon's financial situation.
 
 Apparently, she was a mistress of some rich dude. Though we tried to drill for more information, all our efforts failed.
+
+## Session 3
+
+For the first thing in the morning, I visited Delver's Guild to join them (I heard that I can earn a lot in the dungeons). 10 gold annual membership fee was expensive I thought, but what the hack. They have job information!
+
+After joining the guild, I started practicing archery. Next to the range, one guy was practicing swordmanship on dummies. He was competent in his sword skill. Maybe he could teach me a thing or two. So, we went to backyard.
+
+But, the battle was not fair! Even before I got ready, Tuea (the swordman) came at me by surprise! I barely dodged the attack using the belt (hey! He came at me even before we started!) and trying to jump to his behind, but the belt glitched and I hang in the air upside down!
+
+To get down, I pressed the button to get down, but it did the opposite; I started to levitate! If it was not for Hudson, I would have flied away like years ago. He tried to cut the belt with his dagger, but too bad! I tried that many times.
+
+After that, Tuea gave me a piece of information on a potential job. People had promised some money to investigate the Old Greyson House. But, it was far from where we were, so we decided to investigate later with Martigan.
+
+Anyway, it was time for us to go to the warehouse and ambush the killers. Hudson hid under wooden platform while I hid on it. Too bad that I picked wrong spot. One of the two guys started climbing up the stairs, and I was about to be discovered.
+
+So, I jumped on the guy (Laucio) by putting weighty spell on him. He slowly draw his sword and attacked me. I dodged the attack, but it was too close. Meanwhile, Hudson attacked him, dealing a heavy blow, knocking him out.
+
+Yet, unfortunately, that thump alerted the other guy (Vagger), and Vagger ran towards us. With sword, I ran towards him, but, due to my clumsiness, I slipped and fell on him after hitting Vagger with the side of my sword, knocking him out.
+
+After the battle, I picked up a shield from Laucio. We got some golds too. As I used my potion of healing of reflexes, Martigan came in.
+
+"You are late." I said with grin.
+
+
+
+
+
+
+
+
+
+
