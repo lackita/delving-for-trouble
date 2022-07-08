@@ -89,11 +89,29 @@ After the battle, I picked up a shield from Laucio. We got some golds too. As I 
 
 "You are late." I said with grin.
 
+## Session 4
 
+Martigan came in and saw what had happened. Unfortunately, he had accepted another job at a different city, so he had to leave the party. The interrogation was up to us.
 
+Vagger woke up. So, I pulled out a needle and asked him what was he up to. At the time, a bird flew away, and a look of fear appeared on his face. "Omnimous," I thought. Apparaetly, he was hired to kill Fontine but felt guilty about it. In the end, he hired those goons from the street to do the job instead. Though he answered, he was too slow, so I poked the flash under the nail. Finally, he gave a name: Toridan Cran. After that, I healed him with the potion of healing, though I shouldn't have. He did not give anymore information afterwards.
 
+In the end, we decided to follow the bird. I tried to put 'Weighty' spell on it, but it only slowed down. Luckily, though, Hudson was able to keep the pace with it and chased it down on one of the houses on Nar Street.
 
+The house was in the run-down neighbourhood. The back door was gone, so someone boarded boards so that the wind would not get into the house. In there, people were having a conversation. To make out what they were saying, I put my ear on the boards, but, alas, someone did a shoddy job, and I fell to the ground right through the wooden boards.
 
+Inside, there were two people. I awkwardly smiled and said, "Hello," yet, they were not amused. At then, I heard Hudson kicked down the front door.
+
+When the people in the kitchen saw me, one of them swung a giant axe, and I hurriedly went outside.
+
+As the other person came outside, chasing me, I used hover to fly into the air to get out of their weapons while shooting an arrow at one of them. It was a critical hit, and it looked really hurt. The other guy with the great axe (apparently Toridan himself), came out and threw a dagger on me, which cut my leather shoes. The second guy threw rope on me, but, thankfully, it missed. At that point, I saw an explosion by the main room and saw Hudson coming to the backyard towards me attacking Toridan.
+
+Putting weighty on myself, I plunged myself on Toridan with the sword in hand. Though he did not take much damage, his great axe was cut in half. However, using the momentum, he swung his axe at me, which knocked me back. Meanwhile, the goon went for Hudson with the mace in his hand. Yet, the goon lost his balance, and, with a simple hit, Hudson knocks him out with the back of his dagger. From the house, a guy emerged, mumbling something.
+
+Hudson charged at Toridan, but Toridan sidestepped the charge. I used hover to get out of the range and shot an arrow, hurting the mage pretty badly. Meanwhile, Toridan hits Hudson with a side of the axe, and it hit Hudson, which pushed him back a bit. The mage, though badly hurt, the mage channelled his magic, sending a fire ball. Though I got away, my clothes caught fire. Thankfully, Hudson knocked out mage, and I knocked out Toridan by slamming down with a shield.
+
+After the fight, I put out the fire and searched the house for golds. Instead, I found a key, ledger, and Archinum Text (which was expensive enough to get me a moderate item). I went out to the backyards to ask for help from Hudson, but I fell down to the basement on my back. I came out all beaten up, and Hudson tried to look for something in the house. 
+
+Meanwhile, I looked at the ledger, and it turns out that Methul Watcher paid Toridan to kill Fontine. In it, it had other names of local criminals. But that was not my interest. I wanted treasure. Sadly, he was adamant, and I could not get anything out of him.
 
 
 
